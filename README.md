@@ -1,2 +1,2 @@
-# consci-ncia-pol-tica
+# consciencia-politica
 Como votar conscientemente
